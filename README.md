@@ -1,0 +1,4 @@
+crusher-equipment
+=================
+
+Shanghai Joyal Machinery Co., Ltd have established a whole production chain, of which main products cover stone crushing &amp; screening equipments: Jaw Crusher, Cone Crusher,   Impact Crusher, Vertical Impact Crusher, Hammer Crusher, Vibrating Feeder, Oscillating Screen, Sand Washer, Belt Conveyor, Grinding Machinery,Raymond Mill, High-pressure   Suspension Mill, Ultrafine and Roller Mill, Ball mill and so on. They are widely used in the industry of mining, construction materials, chemicals, metallurgies, transportation,   hydraulic engineering and so on. Our products are not only renowned in more than 20 provinces and cities in domestic markets, but also have being sold popularly in more than 120   countries and areas all over the world like Eastern Europe, Middle East, Africa, South Asia, Southeast Asia, Oceania, and Central and South America etc.
